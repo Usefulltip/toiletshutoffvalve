@@ -30,7 +30,7 @@ Tenants can use a moist cloth rather than running water to clean. A bucket uses 
 Tenants can help family members and roommates adopt water-saving habits. Spreading knowledge about water conservation encourages a sustainable lifestyle at home. Simple conversations can spark group initiatives to cut waste.
 
 ## Advocate for Water-Efficient Fixtures
-Water-efficient devices, such as toilet water shut-off valves and low-flow faucets, can be promoted by tenants. These choices save water without compromising functionality. Everyone in the building may save money in the long run if this is discussed with the property management.
+Water-efficient devices, such as [toilet water shut off valve](https://www.thewaterscrooge.com/landlords/auto-toilet-shutoff-valve-toilet-scrooge) and low-flow faucets, can be promoted by tenants. These choices save water without compromising functionality. Everyone in the building may save money in the long run if this is discussed with the property management.
 
 ## Conclusion
 Tenants can drastically cut down on water waste by implementing these measures. Using water-efficient fixtures, repairing leaks, and cutting shower times all contribute to resource conservation and cost savings. Tenants working together can create a community that is more water-conscious for coming generations.
